@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently working on **CEDT**
 
-- 🌱 I’m currently learning **Exploring advanced data structures, mastering binary search trees, and improving my delegation and public speaking skills.🌱**
+- 🌱 I’m currently learning **mai me loey🌱**
 
 - 🤝 I’m looking for help with **Everything**
 
