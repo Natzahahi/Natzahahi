@@ -7,11 +7,11 @@
 
 - 🔭 I’m currently working on **CEDT**
 
-- 🌱 I’m currently learning **How to pass grade F**
+- 🌱 I’m currently learning **Exploring advanced data structures, mastering binary search trees, and improving my delegation and public speaking skills.🌱**
 
-- 🤝 I’m looking for help with **backend**
+- 🤝 I’m looking for help with **Everything**
 
-- 💬 Ask me about **EVERYTHING cause im the best**
+- 💬 Ask me about **^_^**
 
 - ⚡ Fun fact **I think I am FUNNY(ei ei)**
 
