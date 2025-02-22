@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **EVERYTHING cause im the best**
 
-- ⚡ Fun fact **I think I am FUNNY**
+- ⚡ Fun fact **I think I am FUNNY(ei ei)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
